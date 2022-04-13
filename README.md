@@ -1,0 +1,2 @@
+# nasiekkk
+zadanka z bioinformatyki
